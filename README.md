@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @GiygasForPresident
+- 👀 I’m interested in web design, Discord bots, and programming other thing. 
+- 🌱 I’m currently learning anything I can.
+- 💞️ I’m looking to collaborate on anything.
+- 📫 How to reach me https://giygas.site, mailto:giygas@giygas.site
